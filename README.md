@@ -1,5 +1,5 @@
-## Hi there 👋
-
+## oii sou a amanda 
+S2S2
 <!--
 **amanda939/Amanda939** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
